@@ -16,6 +16,8 @@ This project started with a threat model, not a design — because thinking thro
 
 💼 Experience
 
+AI Intern - UX/UI Design - FlyRank
+
 Remote AI Trainer — Handshake AI (current)
 Training and evaluating AI models remotely, contributing to the development of more accurate and reliable AI systems.
 
