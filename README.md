@@ -59,7 +59,10 @@ Preparing for ISC² CC exam
 🤝 Communities
 
 WiCyS (Women in CyberSecurity)
-Lector, local church
+
+Lector at Saint Paul Catholic Church - 6901 Dixie Hwy, Pleasure Ridge Park, KY 40258
+
+Alpha Delta Theta Chapter - PTK Member
 
 📫 Connect with me
 
